@@ -3,35 +3,46 @@ title: The Whispers In The Woods, The Weird Book
 date: 2025-03-19 4:24:00 +0330
 categories: [The Whispers In The Woods, Chapter 1, Episode 1]
 tags: [woods,witch,novel,magic,love,adventure]     # TAG names should always be lowercase
-description: This is a mysteris novel, be carful, you enter in dangeraous space.
+description: When Julia's school trip takes her to a forest filled with whispers and dark secrets, she stumbles upon a cursed book that reveals an ancient evil. As reality blurs with the supernatural, she must uncover the truth before it's too late.
 ---
+
 The girl looked at the lake. But it was different. It had a really shiny dark blue color. It seemed that some white stars had fallen into it. 
+
 From the darkness among the trees, a female voice cried out, “Help me! Help me, Julia!”
+
 She should have done something...
-- Julia!
+
+**— Julia!**
 Somebody was calling her name.
-- Julia! Wake up! 
+
+**— Julia! Wake up!**
 She opened her eyes...It was just a nightmare? She looked at Martha who was looking at her with her green eyes. The sun had lighted a part of Martha's curly brown hair.
-- Sorry, I was exhausted.
-Then she took a glance at the forest that could be seen from the window. 
-The ground in front of the forest had dressed up as a massive green prairie while many trees had grown up there that the fall breeze was making their leaves dance.
 
-Sarah, sitting in front of the two girls, touched her ginger hair and said:" It's definitely because of your excitement. You always get excited for everything." 
-Then she looked at the window with her blue eyes and said:" I'm so excited too. But forests…Freak me out sometimes.”
-Martha chuckled and said:" Oh, Sarah! You're scared of everything! Not just forest!"
-Sarah rolled her eyes and said:" No, that's not true at all! I'm scared of nothing but forests, especially the dark forests!"
+**— Sorry, I was exhausted.**  
+Then she took a glance at the forest visible from the window. The ground in front of the forest had dressed up as a massive green prairie while many trees had grown up there that the fall breeze was making their leaves dance.
 
-The teacher, who was standing next to the driver, straightened her short curly blond hair and said:" We've arrived guys!"
+Sarah, sitting in front of the two girls, touched her ginger hair and said: **“It’s definitely because of your excitement. You always get excited about everything.”**  
+Then she looked at the window with her blue eyes and said: **“I'm excited too. But forests... they freak me out sometimes.”**
 
-Then the bus stopped and the students got off the bus, one by one. 
-Julia jumped on the green grass, trying to feel the velvet grass. 
-Then she said to the teacher:" Oh, Mrs. Willer! I love school camps! Especially science camps!"
--Yeah, that's nice! When I was 13, I loved school camps too!"
-Tom, the boy who had just got off the bus, ran a hand through his curly brown hair arrogantly and said:" We're not here to play. We've camped to learn science!"
+Martha chuckled and said: **“Oh, Sarah! You’re scared of everything, not just forests!”**
+
+Sarah rolled her eyes and said: **“No, that’s not true at all! I’m scared of nothing but forests, especially dark ones!”**
+
+The teacher, who was standing next to the driver, straightened her short curly blond hair and said: **“We've arrived, guys!”**
+
+Then the bus stopped and the students got off the bus, one by one. Julia jumped on the green grass, trying to feel the velvet texture under her feet. 
+**“Oh, Mrs. Willer! I love school camps! Especially science camps!”**
+
+**“Yeah, that's nice! When I was 13, I loved school camps too.”**
+
+Tom, the boy who had just got off the bus, ran a hand through his curly brown hair arrogantly and said: **“We’re not here to play. We came to learn science.”**
 
 His harassment began again. Why did he have to bother Julia all the time? Probably because he had always been her competitor. 
-Julia sighed and said:" Tom! I think you shouldn't taunt! That's right, I didn't study on our camping trip last year, but you shouldn't remind me of this!"
-Tom said smirking:” You’d better be grateful that I'm pointing out your mistakes, despite being your competitor.”
+
+Julia sighed and said: **“Tom, I think you shouldn’t taunt me! It’s true that I didn’t study much on our last camping trip, but you don’t have to keep reminding me!”**
+
+Tom said smirking: **“You should be grateful that I’m pointing out your mistakes, despite being your competitor.”**
+
 Julia couldn't help but look daggers at him and look away. 
 As the breeze caressed her face, she put her hands in the pockets of her blue coat and looked around, until her eyes stopped on the forest. 
 The trees were so close that the space among them looked a little dark, but still…It was like something wanted to jump out of the forest to give you a goosebump. It seemed silent there, but the darkness had many words to say, words that probably indicated the existence of a creature in the forest. 
@@ -143,20 +154,21 @@ As she sat on her sleeping bag, she shook the dirt on the book and read the titl
 
 Julia was shocked again. She opened the book. The index had written in the first page of book but there wasn't any name of the writer.
 She read the second page:
-> Chapter 1: The story of the cursed forest
-> I wanna talk to you about a forest. If you wanna save the forest, you have to know its story, at first.
-> Everything started when the dark devil was born. Before that, this forest was amazing and  magical of course! Whole the magical and also normal creatures in this forest had a great life. Until the dark devil, who is the main devil's relative, noticed the existence of this magical forest.
-> Via some research, he discovered that the forest had a power that brings an endless peace to life and all your wishes will be fulfilled in that forest. The dark devil wanted to not only take over the whole world but also that magical forest. If he managed to do so, he could steal the power of the forest with a little effort and then take over the whole world with that power.
-> He took over the forest causing it to be really dangerous.
-> He figured out that stealing that power is really hard, so he cursed the forest, so that if anyone goes there, they can never exit the forest, unless that person breaks the curse. Then he put some dangerous and magical creatures in the forest.
-> That curse is actually an invisible layer that is in two steps away from the forest. The dark devil wanted to make taking over the world easier, so he cursed the forest again. This new curse causes the forest to attract imaginative people who believe in many of the fairy tales.
-> Due to this curse, these people unconsciously go to the forest and if they go inside the forest, they will never exit. Well, attracting realistic people was hard, so the dark devil didn't tell the forest to attract them. Besides, if those imaginative people can overcome that attracting feeling, in the third time of attracting, they'll hear a voice coming from the forest which says:" Come! Come to me! Come here and save me! You'll experience eternal peace here! Come! Come and save me!"
-When Julia read this part, she got more shocked. 
-“ That's why I heard those words!” 
+
+> *Everything started when the dark devil was born. Before that, this forest was amazing and  magical of course! Whole the magical and also normal creatures in this forest had a great life. Until the dark devil, who is the main devil's relative, noticed the existence of this magical forest.*
+> *Via some research, he discovered that the forest had a power that brings an endless peace to life and all your wishes will be fulfilled in that forest. The dark devil wanted to not only take over the whole world but also that magical forest. If he managed to do so, he could steal the power of the forest with a little effort and then take over the whole world with that power.*
+> *He took over the forest causing it to be really dangerous.*
+> *He figured out that stealing that power is really hard, so he cursed the forest, so that if anyone goes there, they can never exit the forest, unless that person breaks the curse. Then he put some dangerous and magical creatures in the forest.*
+> *That curse is actually an invisible layer that is in two steps away from the forest. The dark devil wanted to make taking over the world easier, so he cursed the forest again. This new curse causes the forest to attract imaginative people who believe in many of the fairy tales.*
+> *Due to this curse, these people unconsciously go to the forest and if they go inside the forest, they will never exit. Well, attracting realistic people was hard, so the dark devil didn't tell the forest to attract them. Besides, if those imaginative people can overcome that attracting feeling, in the third time of attracting, they'll hear a voice coming from the forest which says:" Come! Come to me! Come here and save me! You'll experience eternal peace here! Come! Come and save me!"*
+
+Julia froze. 
+
+**“That’s why I heard those words…”**
 Julia kept on reading more excitedly:
-> Fortunately, the dark devil hasn't been able to steal the power of the forest. Not yet. But he's making hard efforts. 
-> If you wanna save the whole world and the forest, you'd better use this book. Also, you have to go through the forest and break the curse and save everyone. But remember that if you go over that invisible layer, you will never be able to exit there, until that time when you break the curse.
-> This was the whole story. But don't worry! I'll guide you in this book!"
+> *Fortunately, the dark devil hasn't been able to steal the power of the forest. Not yet. But he's making hard efforts. *
+> *If you wanna save the whole world and the forest, you'd better use this book. Also, you have to go through the forest and break the curse and save everyone. But remember that if you go over that invisible layer, you will never be able to exit there, until that time when you break the curse.*
+> *This was the whole story. But don't worry! I'll guide you in this book!"*
 
 Julia smiled gladly and she was so eager to read more, so she spent almost a half of the night reading the book. She read chapter 2 and also chapter 3. Now, she knew many things about the forest, which nobody else knew.
 “ I should go to the forest and save everyone! But I hope that this work will be over within a week. Or else, I won't be able to come back home and our families will be worried about their children…” 
