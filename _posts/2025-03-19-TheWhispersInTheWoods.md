@@ -43,117 +43,227 @@ Julia sighed and said: **“Tom, I think you shouldn’t taunt me! It’s true t
 
 Tom said smirking: **“You should be grateful that I’m pointing out your mistakes, despite being your competitor.”**
 
-Julia couldn't help but look daggers at him and look away. 
-As the breeze caressed her face, she put her hands in the pockets of her blue coat and looked around, until her eyes stopped on the forest. 
-The trees were so close that the space among them looked a little dark, but still…It was like something wanted to jump out of the forest to give you a goosebump. It seemed silent there, but the darkness had many words to say, words that probably indicated the existence of a creature in the forest. 
-“ Why does the forest make me feel…Weird?” Julia thought. 
-She sighed and said:” Nevermind.” 
-Then she organized her blond hair that was braided in two tails and said excitedly to Mrs. Willer:" Wow! Are we really going to stay here for one week?!...I can't believe it! I love forests so much!"
-Mrs. Willer smiled and said:" Sorry sweetie, but we can't go inside the forest so much. It might be dangerous there. But don't worry. After teaching you something, I'll check the forest out.”
-Julia said pleadingly:" Can't I come with you?"
-- Sorry darling but no, you can't."
-Julia sighed and sat on a rock. 
-When Mrs. Willer taught them how to camp and do other tasks, she said:" Well, guys! I'm going to check the forest. Please don't follow me!... Tom? Can you write any of the students' names who came to the forest?!"
-Tom smiled and said proudly:" Sure thing, Mrs. Willer!"
-“ How arrogant!” Julia thought as she looked at Tom. 
+Julia couldn't help but glare at him before looking away.
+
+As the breeze caressed her face, she slipped her hands into the pockets of her blue coat and glanced around until her eyes settled on the forest.
+
+The trees stood so close together that the space between them appeared dark, almost menacing. It felt as if something were lurking in the shadows, ready to leap out and send shivers down her spine. The silence was deceptive—within the darkness, unspoken words seemed to echo, hinting at the presence of an unseen creature.
+
+"Why does the forest make me feel... weird?" Julia wondered.
+
+She sighed and muttered, "Never mind."
+
+Then, adjusting her blonde hair—braided into two tails—she turned excitedly to Mrs. Willer.
+
+"Wow! Are we really staying here for a whole week?! I can't believe it! I love forests so much!"
+
+Mrs. Willer smiled and replied, "Sorry, sweetie, but we can't go too deep into the forest. It might be dangerous. But don't worry—once I finish teaching you something, I'll check it out."
+
+Julia pleaded, "Can't I come with you?"
+
+"Sorry, darling, but no. You can't."
+
+Julia sighed and sat on a rock.
+
+After teaching them how to set up camp and complete other tasks, Mrs. Willer announced, "Well, guys! I'm going to check the forest. Please don't follow me!... Tom, can you write down the names of any students who go into the forest?"
+
+Tom grinned and said proudly, "Sure thing, Mrs. Willer!"
+
+"How arrogant," Julia thought as she shot a glance at Tom.
 
 Then Mrs. Willer went to the forest. But as Julia looked at her, Mrs. Willer suddenly stopped and looked around and after a few seconds she entered the forest.
 
-Julia sighed again. She wanted to go to the forest so badly and as she stared deep into the dark, she felt something pushing her towards the forest…It wasn’t an object but she could feel it, as if it was a magnet. She also knew that she mustn't have gone to the forest but then...she took a few steps to the forest.
-“ What am I doing? I…I shouldn't do this!...Wha…” 
-Suddenly she felt that she heard Martha's voice:" Julia?! Where are you going?!... Don't go!...Don't you know that Tom writes the names of any students who go to the forest? Do you wanna get a negative mark?”
+Julia sighed again. She wanted to go into the forest so badly. As she stared deep into the darkness, she felt something pulling her toward it… It wasn’t a physical force, but she could sense it—like a magnet drawing her in.
 
-“ Did Martha just say something to me?...Not a big deal…I should go to the forest.”
-She took more steps and said out loud:” I'm coming, forest! I'm coming!"
-When Martha found out Julia didn't listen to her, shouted:"Julia!"
-Suddenly Julia came to herself. She was only four steps away from the forest.
- Then she said confusedly:" Oh... Wha... What happened...What has happened Martha?"
-- Do you know what you're doing?!
-- Well... I was just going to the forest…Like unconsciously, I guess?...I don't know…I knew that I must've not done this..But I did it..A feeling told me to do this...And now I feel weird. Now that I'm watching the forest again, I feel that I really wanna go there... Yeah, I'm coming, forest!"
-Suddenly Martha took her hand and said:" The forest is dangerous, Julia!"
+She knew she wasn’t supposed to go into the forest, yet… she took a few hesitant steps forward.
 
-The girls saw Tom coming to them, all of a sudden.
- His gray eyes shined for a moment as he said:" I saw you coming from the forest. Did you go to the forest?!"
-Martha said:" No, we didn't!"
-Julia said:” We never break the rules, Tom!” 
-Tom smirked as usual and said:” Really? That's a new thing, because as far as I remember, you always broke the rules, Julia.” 
-Well, that was almost true. Julia couldn't help but make some troubles at school, she just didn't like getting bored. 
- One hour later, the students gathered together, as Mrs Willer hadn't come back yet. 
-A guy asked Tom:"  Why doesn't Mrs. Willer come?!"
-Tom said:" How should I know?... Let's wait a little more.”
+"What am I doing? I... I shouldn't be doing this!... Wha—"
 
-Julia looked at the forest again. Suddenly she heard a female voice like the voice in her nightmare:" Come! Come to me! Come here and save me! You'll experience an eternal peace here! Come! Come and save me!"
+Suddenly, she heard Martha’s voice.
 
-Not everyday would it happen for people to hear a sharp creepy voice from a forest. But still Julia heard it. And yet, she couldn't believe it. 
-But then, Julia felt that magnet again and heard the voice which was repeating the same words.
-She covered her ears and closed her black eyes.
-“ What the hell is going on?”
-After a few seconds, she opened her eyes and didn't cover her ears anymore. 
-Sarah said worriedly:" Julia?! you okay?!"
-Julia looked at them and said:” Did you hear that voice too? The voice that came from the forest?”
-Tom said confusedly:" No, of course not… Don't worry, You probably heard it because you believe in mumbo jumbo!"
-Julia said:" They're not mumbo jumbo! You think that they are!” 
-Tom said:" Should I really prove to you that they're mumbo jumbo?"
-Julia said madly:" No, you can't! Besides ,I've gotten used to these arguments with you! And these arguments are really boring for me!"
+"Julia?! Where are you going?! Don't go! … Don't you know that Tom writes down the names of any students who enter the forest? Do you want to get a negative mark?"
 
-Or were they actually boring? Because she felt like those arguments with Tom made her eager to go to school. 
+"Did Martha just say something to me? … Not a big deal… I should go to the forest."
 
-It was the middle of night but Mrs. Willer hadn't come back.
-Whole the students gathered near a fire near their tent.
-Tom said:" Some of us should look for Mrs. Willer. I wanna go."
-Julia said:" Well... I think it's dangerous but... I wanna look for Mrs. Willer too!"
-Tom said:" Unfortunately, you can't come. You're not as strong as us, because you're a girl.”
-Julia said:" I don't think such things need strength! Whether I'm a girl or a boy, I can handle the dangers of the forest!"
-Tom said:" So, what if a wolf or bear or another wild animals attacked us?"
-- That's right that I'm not able to kill them but are you?!
-- We have guns!
-- Really?!... But can't I work with gun?
-- Well, I don't think that you're interested in killing.
-- Well, of course I'm not!...So... How about running away from the wild animals?
-- That's a really silly idea!
-- Do you mean that I'm stupid?!
-- When did I say that?
-- I think you meant that I'm stupid, Tom!
-- So, what's the matter with it?
-- Because I really don't like to be stupid! If I am, I have to change myself. But in my opinion, I'm not stupid.
-- Nobody likes to be stupid! Look, Julia! I recommend you not to come. At least, don't come so that you won't die.
-- I prefer to endanger my life but also see the forest and have some adventures!
-- Sorry, but no, you can't come.
-- Yes, of course I can.
-- No.
-- Yes!
-Martha said angrily:" Ah! Tom! Julia! Please don't argue like that! Argument doesn't solve our problems! Can you stop these childish and silly arguments?! You're not a kid anymore, are you?"
-Julia stood up and said:" Alright! What if nobody goes to the forest? Probably Mrs. Willer will come now."
-A girl who was touching her long black hair as usual said:" How do you know that?"
-- Well... I don't know, Clara... But I think it's better to wait. Maybe she'll come tomorrow."
+She took a few more steps and called out, "I'm coming, forest! I'm coming!"
 
-The silence took over the prairie as they did not say anything. The only thing that could be heard was the squeaking of crickets in the bushes. 
-Julia looked at the fire in front of her. The orange and red flames of the fire broke the darkness and danced.
-After a while, when it was time to sleep, the boys went to their own tent and the girls went to their own.
-Two hours passed. But Julia was still awake.
-That forest... How could it talk? It was impossible, although in Julia's opinion, nothing was impossible. 
-Did Mrs. Willer's disappearance have anything to do with that weird forest? Or even that nightmare?
-Julia couldn't put up with her odd feeling.
-So, she weard her blue coat on her red sleepwear and picked up her flashlight from her backpack. Then she exited the tent.
-Julia looked around anxiously. But everyone was in their tents, and she could only see the dark prairie. 
- Then she went near the forest with her flashlight.
-She watched inside the forest. It was dark as usual but who knew how many secrets had hidden there? 
-Julia stopped watching there, as not to hear the voice.
-Then a part of the ground that was lit up by her flashlight, drove her attention. That part didn't have much grass and was red. 
-Julia leaned over it and saw the green algae that had grown on the red stuff and the dirt had taken over it. 
-Julia touched it and looked at her finger and saw dust. 
-It must have been there for a really long time.
-She put her flashlight on the ground and tried to put up the stuff. 
-“ Why is this so heavy? Oh God…I can't…”
-Finally she managed to put it up and looked at it carefully. 
-Julia said confusedly:” What is this?...Wait…Is this a book? What is a book doing on a prairie?”
-Julia went back to the tent with her flashlight and the book, taking her steps rapidly. 
-As she sat on her sleeping bag, she shook the dirt on the book and read the title of the red book while using her flashlight:
+When Martha realized Julia wasn’t listening, she shouted, "Julia!"
 
-"The guide of the cursed forest"
+Suddenly, Julia snapped back to reality. She was only four steps away from the forest.
 
-Julia was shocked again. She opened the book. The index had written in the first page of book but there wasn't any name of the writer.
-She read the second page:
+Confused, she mumbled, "Oh... Wha... What happened? What’s going on, Martha?"
+
+"Do you even know what you're doing?!" Martha asked, her voice laced with concern.
+
+"Well... I was just walking toward the forest... like unconsciously, I guess? I don’t know… I knew I wasn’t supposed to do this, but I did it anyway. Something told me to go… and now I feel strange. Now that I’m looking at the forest again, I feel like I really want to go there… Yeah, I’m coming, forest!"
+
+Before she could take another step, Martha grabbed her hand.
+
+"The forest is dangerous, Julia!"
+
+The girls suddenly saw Tom approaching them.
+
+His gray eyes gleamed for a moment as he said, "I saw you coming from the forest. Did you go in?"
+
+Martha quickly replied, "No, we didn't!"
+
+Julia added, "We never break the rules, Tom!"
+
+Tom smirked, as he always did, and said, "Really? That’s new. Because as far as I remember, you always broke the rules, Julia."
+
+Well, that was almost true. Julia couldn’t help but stir up trouble at school—she just didn’t like being bored.
+
+An hour later, the students gathered together, growing uneasy. Mrs. Willer still hadn’t returned.
+
+A boy turned to Tom and asked, "Why isn't Mrs. Willer back yet?"
+
+Tom shrugged. "How should I know? … Let’s wait a little longer."
+
+Julia looked at the forest again.
+
+Suddenly, she heard a female voice—eerily similar to the one from her nightmare.
+
+"Come! Come to me! Come here and save me! You'll experience eternal peace here! Come! Come and save me!"
+
+It wasn’t every day that someone heard a sharp, creepy voice coming from the forest. And yet, Julia did.
+
+Still, she couldn’t believe it.
+
+Then, that strange pull—the invisible force—returned, stronger than before. The voice repeated its haunting plea.
+
+Julia covered her ears and squeezed her black eyes shut.
+
+"What the hell is going on?"
+
+After a few seconds, she hesitantly opened her eyes and let her hands drop from her ears.
+
+Sarah’s worried voice broke through her daze. "Julia?! Are you okay?!"
+
+Julia turned to them, her voice unsteady. "Did you hear that voice too? The one from the forest?"
+
+Tom frowned. "No, of course not… Don’t worry. You probably imagined it because you believe in all that mumbo jumbo!"
+
+Julia snapped, "It’s not mumbo jumbo! You just think it is!"
+
+Tom smirked. "Should I really prove to you that it’s all nonsense?"
+
+Julia shot back, frustrated, "No, you can’t! And besides, I’ve gotten used to these arguments with you! They’re honestly boring now!"
+
+Or… were they really boring?
+
+Because, deep down, she had to admit—those arguments with Tom were part of what made school exciting.
+
+It was the middle of the night, but Mrs. Willer still hadn’t returned.
+
+All the students gathered around a fire near their tents.
+
+Tom spoke up. "Some of us should go look for Mrs. Willer. I want to go."
+
+Julia hesitated. "Well... I think it’s dangerous, but... I want to look for her too!"
+
+Tom shook his head. "Unfortunately, you can’t come. You’re not as strong as us—because you’re a girl."
+
+Julia frowned. "I don’t think strength has anything to do with this! Whether I’m a girl or a boy, I can handle the dangers of the forest!"
+
+Tom crossed his arms. "Oh yeah? What if a wolf, a bear, or some other wild animal attacks us?"
+
+"Okay, sure, I’m not strong enough to fight them," Julia admitted. "But are you?"
+
+"We have guns!" Tom replied smugly.
+
+"Really?! … And you think I can’t use one?"
+
+Tom smirked. "Well, I don’t think you’re interested in killing."
+
+Julia scoffed. "Of course I’m not! … So, how about just running away from wild animals?"
+
+"That’s a really dumb idea."
+
+Julia narrowed her eyes. "Are you saying I’m stupid?"
+
+"When did I say that?" Tom asked, raising an eyebrow.
+
+"I think you meant it, Tom!"
+
+"So what if I did?" he teased.
+
+"Because I really don’t like being called stupid! If I were, I’d have to change myself. But in my opinion, I’m not stupid."
+
+"Nobody likes being stupid," Tom said with a sigh. "Look, Julia, I’m telling you this for your own good. You shouldn’t come. At least stay back so you don’t get yourself killed."
+
+Julia crossed her arms. "I’d rather risk my life, see the forest, and have an adventure!"
+
+"Sorry, but no. You can’t come."
+
+"Yes, I can!"
+
+"No."
+
+"Yes!"
+
+"No!"
+
+"Yes!"
+
+Martha sighed in frustration. "Ugh! Tom! Julia! Please stop arguing like this! Fighting won’t solve anything! Can you stop these childish, silly arguments? You’re not kids anymore, are you?"
+
+Julia stood up. "Alright! What if nobody goes into the forest? Maybe Mrs. Willer will come back on her own."
+
+A girl, who was absentmindedly twirling her long black hair as usual, raised an eyebrow. "And how do you know that?"
+
+Julia hesitated. "Well... I don’t know, Clara... But I think it’s better to wait. Maybe she’ll come back tomorrow."
+
+The silence overtook the prairie as they all remained silent. The only sound that could be heard was the faint squeaking of crickets in the bushes.
+
+Julia stared at the fire in front of her. The orange and red flames broke through the darkness, dancing and flickering.
+
+After a while, when it was time to sleep, the boys went to their own tent, and the girls to theirs.
+
+Two hours passed, but Julia was still awake.
+
+That forest... How could it talk? It seemed impossible, but then again, Julia thought, nothing was truly impossible.
+
+Did Mrs. Willer’s disappearance have anything to do with that strange forest? Or perhaps even with that nightmare?
+
+Julia couldn’t shake the odd feeling gnawing at her.
+
+Unable to sleep, she threw on her blue coat over her red sleepwear, grabbed her flashlight from her backpack, and stepped out of the tent.
+
+She looked around anxiously, but all was quiet. Everyone else was still in their tents, and she could only see the vast, dark prairie.
+
+She walked toward the forest, flashlight in hand.
+
+As she peered into the forest, the darkness was as thick as ever, but who knew what secrets it hid?
+
+Julia turned away, unwilling to listen to the voice again.
+
+Then, the beam of her flashlight caught something on the ground that drew her attention. The patch of earth was red, with little grass growing over it.
+
+She leaned closer and saw green algae creeping over the red area, the dirt overtaking it.
+
+Julia touched the ground, and when she looked at her finger, it was covered in dust.
+
+It must have been there for a long time.
+
+She placed her flashlight on the ground and tried to move the strange object.
+
+"Why is this so heavy? Oh God… I can’t…”
+
+Finally, she managed to lift it and examined it closely.
+
+"What is this? … Wait… Is this a book? What’s a book doing on the prairie?"
+
+Julia hurried back to the tent, clutching the book in one hand and her flashlight in the other. Her steps quickened.
+
+Once inside the tent, she sat on her sleeping bag, shaking off the dirt from the book. She then read the title, illuminated by the flashlight:
+
+"The Guide of the Cursed Forest"
+
+Julia froze in shock.
+
+She opened the book, and the index was written on the first page, but there was no author’s name.
+
+She flipped to the second page...
 
 > *Everything started when the dark devil was born. Before that, this forest was amazing and  magical of course! Whole the magical and also normal creatures in this forest had a great life. Until the dark devil, who is the main devil's relative, noticed the existence of this magical forest.*
 > *Via some research, he discovered that the forest had a power that brings an endless peace to life and all your wishes will be fulfilled in that forest. The dark devil wanted to not only take over the whole world but also that magical forest. If he managed to do so, he could steal the power of the forest with a little effort and then take over the whole world with that power.*
@@ -165,15 +275,22 @@ She read the second page:
 Julia froze. 
 
 **“That’s why I heard those words…”**
+
 Julia kept on reading more excitedly:
 > *Fortunately, the dark devil hasn't been able to steal the power of the forest. Not yet. But he's making hard efforts. *
 > *If you wanna save the whole world and the forest, you'd better use this book. Also, you have to go through the forest and break the curse and save everyone. But remember that if you go over that invisible layer, you will never be able to exit there, until that time when you break the curse.*
 > *This was the whole story. But don't worry! I'll guide you in this book!"*
 
-Julia smiled gladly and she was so eager to read more, so she spent almost a half of the night reading the book. She read chapter 2 and also chapter 3. Now, she knew many things about the forest, which nobody else knew.
-“ I should go to the forest and save everyone! But I hope that this work will be over within a week. Or else, I won't be able to come back home and our families will be worried about their children…” 
-Then she sighed and thought:” But I suppose my family won’t be worried about me. They're not my real family after all.” 
-Her neighbors couldn't care less about her, could they? They never liked her parents and it was always a mystery for Julia. 
-She thought about her parents’ mysterious death for a moment, that occured when she was 4. The day that their house caught fire all of a sudden and her parents’ corpses were found outside of the house, was still clear to Julia. 
-Julia finished reading chapter 3 and put it in her backpack. 
-Tomorrow was the time. The time for saving the whole world and the forest...
+Julia smiled eagerly, her excitement growing as she read on. She spent almost half the night immersed in the book, devouring Chapter 2 and Chapter 3. By the time she was done, she knew many things about the forest that nobody else knew.
+
+"I should go into the forest and save everyone!" she thought. "But I hope this work is finished within a week. Otherwise, I won’t be able to go back home, and our families will start to worry about their children..."
+
+She sighed and added, "But I suppose my family won’t be worried about me. They're not really my family, after all."
+
+Her neighbors never cared about her, did they? They never liked her parents, and it had always been a mystery to Julia why.
+
+She briefly thought about her parents’ mysterious death when she was only four. The day their house caught fire without warning, and her parents' bodies were found outside, was still vivid in her mind.
+
+Julia finished reading Chapter 3 and tucked the book into her backpack.
+
+Tomorrow was the day—the day to save the world and the forest...
