@@ -14,12 +14,12 @@ timezone: Asia/Tehran
 # jekyll-seo-tag settings › https://github.com/jekyll/jekyll-seo-tag/blob/master/docs/usage.md
 # ↓ --------------------------
 
-title: My Writing Space 😊 # the main title
+title: The Traveler to the Land of Stories 😊 # the main title
 
-tagline: Let see world # it will display as the subtitle
+tagline: Embark on a journey where every step uncovers a new tale # it will display as the subtitle
 
 description: >- # used by seo meta and the atom feed
- Writing fantastic novel
+ Join the Traveler as they explore the Land of Stories, where each turn reveals a new narrative waiting to be discovered. A journey of adventure, mystery, and timeless tales awaits.
 
 # Fill in the protocol & hostname for your site.
 # E.g. 'https://username.github.io', note that it does not end with a '/'.
